@@ -1,5 +1,5 @@
 # Ahmad Syauqi | @syauqiberbakti
 👋 Hi, I’m @syauqiberbakti
 👀 Konsultan Media
-💞️ Sosial Media
+💞️ Media Sosial
 📫 Check @syauqiberbakti on Search Engine

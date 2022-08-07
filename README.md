@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @syauqiberbakti
-- 👀 I’m interested in Crypto Crowdfunding
-- 💞️ I’m looking to collaborate on Crypto and Crowdfunding
-- 📫 How to reach me (Check @syauqiberbakti on Search Engine)
+👋 Hi, I’m @syauqiberbakti
+👀 Konsultan Media
+💞️ Sosial Media
+📫 Check @syauqiberbakti on Search Engine

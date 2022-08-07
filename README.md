@@ -1,4 +1,4 @@
-# Ahmad Syauqi
+# Ahmad Syauqi | @syauqiberbakti
 👋 Hi, I’m @syauqiberbakti
 👀 Konsultan Media
 💞️ Sosial Media
